@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Yinnerston
-- I building a startup, Teaser.
+- broke student lmao
 
 Let me cook 😎
 
